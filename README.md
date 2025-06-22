@@ -1,6 +1,6 @@
 # Chikii MOD Menu APK 2025 – Download Unlimited 99999 Coins & Money for Android/iOS/PC (New Update Hack)
 
-![Chikii Logo](https://vpmods.com/wp-content/uploads/2023/11/Chikii-apk-logo.webp)
+![Chikii Logo](https://vpmods.com/wp-content/uploads/2025/06/Chikii-MOD-APK-for-Android-Safe-Download-Guide-VIP-Coins-Unlocked.png)
 
 > 📥 Official post:  
 [https://vpmods.com/chikii-mod-menu-apk-2025-download-unlimited-99999-coins-money-for-androidiospc-new-update-hack/](https://vpmods.com/chikii-mod-menu-apk-2025-download-unlimited-99999-coins-money-for-androidiospc-new-update-hack/)

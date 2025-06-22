@@ -76,8 +76,7 @@ Want to enjoy the **latest Chikii MOD Menu APK**? Download now and get **99999+ 
 
 ## 🔗 Related
 
-- [Chikii MOD APK – Unlock VIP & Coins](https://github.com/YOUR-USER/chikii-mod-apk-unlimited-vip-coins-2025)
-- [Chikii APK Download – Play GTA 5 on Android](https://github.com/YOUR-USER/chikii-apk-unlimited-coins-2025)
+- [Chikii MOD APK – Unlock VIP & Coins](https://vpmods.com/%f0%9f%8e%ae-chikii-mod-apk-for-android-safe-download-guide-vip-coins-unlocked/)
 
 ---
 
